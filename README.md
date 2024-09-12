@@ -1,1 +1,2 @@
-# arkpz-pzpi-22-9-piatnytskyi-vladyslav
+# ПЗПІ-22-9
+Пятницький Владислав Сергійович
